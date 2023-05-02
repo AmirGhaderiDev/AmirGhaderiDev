@@ -5,8 +5,8 @@
 
 <div align="left">
 
-# 🌐 My Socials Media :
- - 🔭  amirghaderi.ir<br> 
+# 🌟 Connect To Me:
+ - 🌐  amirghaderi.ir<br> 
  - 🌱  https://instagram.com/amir_dlt1<br>
  - 👯  㣊 𝐀𝐦𝐢𝐫 ᴼᴿᴵᴳᴵᴺᴬᴸ#1749<br>
  - 💬  discord.gg/overlandrp<br>
