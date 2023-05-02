@@ -1,4 +1,3 @@
-<div align="left">
 ### • 👋🏻 Hi
 ### • 👯 I am Amir Ghaderi  
 ### • 😄 Front End - Asp.net - Js ...
