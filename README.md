@@ -1,5 +1,7 @@
  <div align="center">
+
 ![](https://github-readme-stats.vercel.app/api?username=AmirGhaderiDev&theme=gruvbox)<br/>
+
 <div align="left">
 
  - 🔭  amirghaderi.ir
