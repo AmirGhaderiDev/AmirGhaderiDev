@@ -1,6 +1,6 @@
-###• 👋🏻 Hi
-###• 👯 I am Amir Ghaderi  
-###• 😄 Front End - Asp.net - Js ...
+### • 👋🏻 Hi
+### • 👯 I am Amir Ghaderi  
+### • 😄 Front End - Asp.net - Js ...
 
 ### How To Connect Me ? 🌐🤔
 
