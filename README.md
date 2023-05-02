@@ -2,7 +2,6 @@
 ### • 👯 I am Amir Ghaderi  
 ### • 😄 Front End - Asp.net - Js ...
 
-<br></br>
 
 - 🔭  amirghaderi.ir
 - 🌱  https://instagram.com/amir_dlt1
