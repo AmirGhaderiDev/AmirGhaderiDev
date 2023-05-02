@@ -1,5 +1,5 @@
  • 👋🏻 Hi
- • 👯 I am Amir Ghaderi  
+  👯 I am Amir Ghaderi  
  • 😄 Front End - Asp.net - Js ...
  - 🔭  amirghaderi.ir
  - 🌱  https://instagram.com/amir_dlt1
