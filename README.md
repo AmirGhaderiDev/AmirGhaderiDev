@@ -4,8 +4,6 @@
 
 <br></br>
 
-### -- How To Connect Me ? 🌐🤔
-
 - 🔭  amirghaderi.ir
 - 🌱  https://instagram.com/amir_dlt1
 - 👯  㣊 𝐀𝐦𝐢𝐫 ᴼᴿᴵᴳᴵᴺᴬᴸ#1749
