@@ -6,8 +6,8 @@
 <div align="left">
 
 # 🌟 Connect To Me:
- - 🌐  amirghaderi.ir<br> 
- - 🌱  https://instagram.com/amir_dlt1<br>
- - 👯  㣊 𝐀𝐦𝐢𝐫 ᴼᴿᴵᴳᴵᴺᴬᴸ#1749<br>
- - 💬  discord.gg/overlandrp<br>
- - 📫  khodeamirghaderi@gmail.com<br>
+ - 🌐  semicolontm.ir <br> 
+ - 🌱  https://instagram.com/realghaderi<br>
+ - 👯  realghaderi <br>
+ - 💬  discord.gg/eulenc <br>
+ - 📫  khodeamirghaderi@gmail.com <br>
