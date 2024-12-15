@@ -10,4 +10,4 @@
  - 🌱  https://instagram.com/realghaderi <br>
  - 👯  https://guns.lol/AmirGhaderi <br>
  - 💬  https://t.me/realghaderi <br>
- - 📫  @realghaderi on all social medias <br>
+ - 📫  @realghaderi on all social networks <br>
