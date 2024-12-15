@@ -6,8 +6,8 @@
 <div align="left">
 
 # 🌟 Connect To Me:
- - 🌐  semicolontm.ir <br> 
- - 🌱  https://instagram.com/realghaderi<br>
- - 👯  realghaderi <br>
- - 💬  discord.gg/eulenc <br>
- - 📫  khodeamirghaderi@gmail.com <br>
+ - 🌐  https://amirghaderi.ir <br> 
+ - 🌱  https://instagram.com/realghaderi <br>
+ - 👯  https://guns.lol/AmirGhaderi <br>
+ - 💬  https://t.me/realghaderi <br>
+ - 📫  @realghaderi on all social medias <br>
